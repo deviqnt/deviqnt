@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=deviqnt&color=61415B)
 <p align="center">
 <img src="https://file.garden/ZtttMuQF4zKolxd7/FD9A758B-BE93-4365-A10C-661CE9C0E015.png"/>
 </p>
