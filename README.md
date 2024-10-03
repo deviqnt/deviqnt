@@ -1,8 +1,8 @@
 <p align="center">
-  <img src="https://watermelon.crd.co/assets/images/gallery16/f33de9a2.gif?v=6332de85"/>
-<img src="https://file.garden/ZtttMuQF4zKolxd7/6C865D3D-A94F-473D-888A-35EC495C1343.png"/>
+<img src="https://file.garden/ZtttMuQF4zKolxd7/FD9A758B-BE93-4365-A10C-661CE9C0E015.png"/>
+</p>
+<p align="center"
+  
+[sys rentry](https://rentry.co/deviqnt)  　　[discord](https://discordid.netlify.app/?id=601029140149174272)  　　[atabook](https://deviqnt.atabook.org/)
 
-<br>
-
-<img src="https://file.garden/ZtttMuQF4zKolxd7/B7D71550-704A-4323-8CAB-2FEEE90B026F.png"/>
 </p>
