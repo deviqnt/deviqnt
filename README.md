@@ -5,7 +5,7 @@
 </p>
 <p align="center"
   
-[sys rentry](https://rentry.co/deviqnt)  　　[discord](https://discordid.netlify.app/?id=601029140149174272)  　　[atabook](https://deviqnt.atabook.org/)
+[sys rentry](https://rentry.co/deviqnt)  　　[discord](https://discordid.netlify.app/?id=601029140149174272)  　　[send me stuff](https://deviqnt.straw.page/)
 
 </p>
 <br>
