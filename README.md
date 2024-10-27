@@ -1,6 +1,6 @@
-![](https://komarev.com/ghpvc/?username=deviqnt&color=61415B&label=adoring+fans)
+![](https://komarev.com/ghpvc/?username=deviqnt&color=c0c0c0&label=adoring+fans)
 <p align="center">
-<img src="https://file.garden/ZtttMuQF4zKolxd7/FD9A758B-BE93-4365-A10C-661CE9C0E015.png"/>
+<img src="https://file.garden/ZtttMuQF4zKolxd7/ivantill"/>
 </p>
 <p align="center"
   
