@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=deviqnt&color=c0c0c0&label=votes)
+![](https://komarev.com/ghpvc/?username=deviqnt&color=c0c0c0&label=roses)
 <p align="center">
 <img src="https://file.garden/ZtttMuQF4zKolxd7/argenthill"/>
 </p>
