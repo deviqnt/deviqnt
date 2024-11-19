@@ -10,11 +10,9 @@
 <br>
 <br>
 <p align="center">
-a lot of my skins are named "me," however 
+i have a long hide list. if im sitting on
   <br>
-  this does not mean i am an "irl" of them.
+  someone and it doesnt look intentional,
   <br>
- they are simply high kins that i view as 
-  <br>
-  myself, with the exception of a few.
+ please whisper and inform me
 </p>
