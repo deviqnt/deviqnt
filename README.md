@@ -10,9 +10,9 @@
 <br>
 <br>
 <p align="center">
-i have a long hide list. if im sitting on
+do not thirst over / imply you like xiao
   <br>
-  someone and it doesnt look intentional,
+  more than me. that is literally my
   <br>
- please whisper and inform me
+ sweet lover !!! <3
 </p>
