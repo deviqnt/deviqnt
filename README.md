@@ -1,9 +1,9 @@
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=deviqnt&color=6E4747&label=snowflakes)
+![](https://komarev.com/ghpvc/?username=deviqnt&color=E094A7&label=crepes)
 
 <p align="center">
-<img src="https://file.garden/ZtttMuQF4zKolxd7/gggg"/>
+<img src="https://file.garden/ZtttMuQF4zKolxd7/bannerblush"/>
 </p>
 <p align="center"
   
