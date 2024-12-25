@@ -17,5 +17,5 @@ do not thirst over / imply you like xiao
   <br>
   more than me. that is literally my
   <br>
- sweet lover !!! <3
+ sweet husband !!! <3
 </p>
