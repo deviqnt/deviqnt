@@ -1,9 +1,9 @@
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=cakes)
+![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=cookies)
 
 <p align="center">
-<img src="https://file.garden/ZtttMuQF4zKolxd7/B012FA6E-4DD5-4282-A599-67DC60B1DC76.png"/>
+<img src="https://file.garden/ZtttMuQF4zKolxd7/73B729A2-4627-434C-A6BD-9488158D661D.png"/>
 </p>
 <p align="center"
   
