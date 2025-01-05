@@ -3,6 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=nara)
 
 <p align="center">
+  i only use ponytown for my bf and friends. you won't find me online in my free time
 <img src="https://file.garden/ZtttMuQF4zKolxd7/aranara"/>
 </p>
 <p align="center"
@@ -15,7 +16,7 @@
 <p align="center">
 do not thirst over / imply you like xiao
   <br>
-  more than me. that is literally my
+  more than me. he is literally my sweet
   <br>
- sweet husband !!! <3
+ husband and i adore him
 </p>
