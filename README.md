@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=nara)
 
 <p align="center">
-  i only use ponytown for my bf and friends. you won't find me online in my free time
+  i only use ponytown for my bf and friends. it's rare to find me online in my free time
 <img src="https://file.garden/ZtttMuQF4zKolxd7/aranara"/>
 </p>
 <p align="center"
