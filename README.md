@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=nara)
 
 <p align="center">
-  ask who's front, we don't use a tracker or anything
+  ask who's front, we don't use simplyplural or anything
 <img src="https://file.garden/ZtttMuQF4zKolxd7/aranara"/>
 </p>
 <p align="center"
