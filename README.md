@@ -1,6 +1,6 @@
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=disciples)
+![](https://komarev.com/ghpvc/?username=deviqnt&color=e3b778&label=disciples)
 
 <p align="center">
   angel on earth
