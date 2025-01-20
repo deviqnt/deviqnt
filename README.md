@@ -1,10 +1,10 @@
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=nara)
+![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=disciples)
 
 <p align="center">
-  ask who's front, we don't use simplyplural or anything
-<img src="https://file.garden/ZtttMuQF4zKolxd7/aranara"/>
+  angel on earth
+<img src="https://file.garden/ZtttMuQF4zKolxd7/ggfdfbv"/>
 </p>
 <p align="center"
   
