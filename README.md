@@ -4,7 +4,7 @@
 
 <p align="center">
   rentry images all broken. filegarden fix ur dead links im crying
-<img src="https://file.garden/ZtttMuQF4zKolxd7/ggfdfbv"/>
+<img src="https://files.catbox.moe/o3qz6v.png"/>
 </p>
 <p align="center"
   
