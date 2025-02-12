@@ -1,6 +1,6 @@
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=deviqnt&color=e3b778&label=disciples)
+![](https://komarev.com/ghpvc/?username=deviqnt&color=CAABC6&label=bunnyos)
 
 <p align="center">
   rentry images all broken. filegarden fix ur dead links im crying
