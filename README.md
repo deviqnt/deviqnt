@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=deviqnt&color=e3b778&label=disciples)
 
 <p align="center">
-  angel on earth
+  rentry images all broken. filegarden fix ur dead links im crying
 <img src="https://file.garden/ZtttMuQF4zKolxd7/ggfdfbv"/>
 </p>
 <p align="center"
