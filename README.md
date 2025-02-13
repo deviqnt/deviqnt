@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=deviqnt&color=CAABC6&label=bunnyos)
 
 <p align="center">
-  rentry images all broken. filegarden fix ur dead links im crying
+  some rentry images broken. filegarden fix ur dead links im crying
 <img src="https://files.catbox.moe/o3qz6v.png"/>
 </p>
 <p align="center"
