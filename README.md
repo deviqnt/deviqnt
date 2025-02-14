@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=deviqnt&color=CAABC6&label=bunnyos)
 
 <p align="center">
-  don't hit on me or my bf. instablock
+  don't hit on me or my bf jokingly or not
 <img src="https://files.catbox.moe/o3qz6v.png"/>
 </p>
 <p align="center"
