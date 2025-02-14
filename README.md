@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=deviqnt&color=CAABC6&label=bunnyos)
 
 <p align="center">
-  10 year strong orca and dinosaur spinterest
+  10 year strong ocean and dinosaur spinterest
 <img src="https://files.catbox.moe/o3qz6v.png"/>
 </p>
 <p align="center"
