@@ -14,9 +14,9 @@
 <br>
 <br>
 <p align="center">
-do not thirst over / imply you like xiao
+don't flirt with my bf guys! this has lit
   <br>
-  more than me. he is literally my sweet
+  happened TWICE i cannot keep reminding
   <br>
- husband and i adore him
+ y'all to respect relationships on this site
 </p>
