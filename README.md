@@ -1,10 +1,10 @@
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=deviqnt&color=CAABC6&label=bunnyos)
+![](https://komarev.com/ghpvc/?username=deviqnt&color=E2CD9F&label=puppies)
 
 <p align="center">
   10 year strong ocean and dinosaur spinterest
-<img src="https://files.catbox.moe/o3qz6v.png"/>
+<img src="https://files.catbox.moe/oabisy.png"/>
 </p>
 <p align="center"
   
