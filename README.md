@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=deviqnt&color=E2CD9F&label=puppies)
 
 <p align="center">
-  10 year strong ocean and dinosaur spinterest
+  MEDICALLY RECOGNISED, by a professional, system 😛 
 <img src="https://files.catbox.moe/oabisy.png"/>
 </p>
 <p align="center"
