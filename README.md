@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=deviqnt&color=E2CD9F&label=puppies)
 
 <p align="center">
-  MEDICALLY RECOGNISED, by a professional, system 😛 
+  angel on earth
 <img src="https://files.catbox.moe/oabisy.png"/>
 </p>
 <p align="center"
@@ -14,9 +14,9 @@
 <br>
 <br>
 <p align="center">
-don't flirt with my bf guys! this has lit
+i'm medically recognised by a professional!
   <br>
-  happened TWICE i cannot keep reminding
+  ponytown player ≠ fake sys/no medical history
   <br>
- y'all to respect relationships on this site
+ 
 </p>
