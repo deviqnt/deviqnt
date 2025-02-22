@@ -13,10 +13,3 @@
 </p>
 <br>
 <br>
-<p align="center">
-i'm medically recognised by a professional!
-  <br>
-  ponytown player ≠ fake sys/no medical history
-  <br>
- 
-</p>
