@@ -14,7 +14,7 @@
 <p align="center">
 i don't play ponytown anymore
   <br>
-  but i still use github as a place
+  nor do i have a strong online
   <br>
-  to store my links, decorate, etc
+  presence
 </p>
